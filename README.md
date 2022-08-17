@@ -4,7 +4,7 @@
 
 <div align="center">
   <p>
-    I am incredible Ashish Jadhav. 
+    I am Ashish Jadhav. 
     I always say empty glass Attitude.🤗📚
   <br/>
     During the weekends I enjoy Travelling, Treaking, Photography and surfing on Internet.
